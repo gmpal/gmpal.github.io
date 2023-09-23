@@ -1,1 +1,0 @@
-# gmpal.github.io
